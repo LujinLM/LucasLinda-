@@ -1,2 +1,1 @@
-hii! im Bun! Languages: Chinese, English ,Vietnamese!
-they/them!
+𝕓𝕚𝕟𝕘𝕠 𝕓𝕚𝕟𝕘𝕠 𝕓𝕒𝕓𝕪
